@@ -22,8 +22,13 @@
   3. Watch english movies, series or documentaries.
 
 **- Timeframe**
-  - End level 3 by the end of November.
-  - End 1 level per month.
-  - End level 8 by the end of April.
+  - End level 3 by the end of December.
+  - 1 level per month and a half.
+  - Level 4: End by February 15th
+  - Level 5: End by March 31st.
+  - Level 6: End by May 15st.
+  - Level 7: End by June 30th.
+  - Level 8: End by August 15th.
+
   
 
